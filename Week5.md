@@ -1,11 +1,10 @@
 # Week 5 - Tino Fantasy Football
-______________________________________________
 
 Current Highest Scorer: **Golden Tate Warriors**
 
 Only one undefeated team left!  Let’s see how this week goes.
 
-## Grades for Trades
+Grades for Trades
 __________________________________
 
 #### TRADE BETWEEN:
@@ -18,7 +17,7 @@ __________________________________
 
 **THOUGHTS**: First trade of the season to go through!  Uhh... it's kinda awkward grading yourself, so I'll let you guys voice your thoughts and opinions in the iMessage thread.
 
-## POWER RANKINGS
+POWER RANKINGS
 _________________________________
 
 #### 1. Golden Tate Warriors (Owner: Kevin) (5 - 0) (0)
@@ -109,7 +108,7 @@ _________________________________
 *NOTABLE MENTIONS: Will Fuller V (HOU) (20.20 pts)*
 ![](https://media.giphy.com/media/26n7a8iyXXI7WeQXm/giphy.gif)
 
-## WEEK 6 PREDICTIONS
+WEEK 6 PREDICTIONS
 ________________________
 
 *Prediction Record: 12 - 12*
