@@ -41,6 +41,7 @@ __________________________________________
 ##### **Worst Play of the Week**: *Geronimo Allison (GB)* (0.00 pts)
 
 Notable Mentions: *Nelson Agholor (PHI) (19.30 pts)*
+
 ![](https://media.giphy.com/media/3o7aD2TEXmuxhCPpfi/giphy.gif)
 _________________________________________
 #### **4. Jay Young (Owner: Charles) (4 - 1) (-1)**
@@ -106,6 +107,7 @@ _________________________________________
 ##### **Worst Play of the Week**: *Tarik Cohen (CHI)* (2.20 pts)
 
 Notable Mentions: *Will Fuller V (HOU) (20.20 pts)*
+
 ![](https://media.giphy.com/media/26n7a8iyXXI7WeQXm/giphy.gif)
 
 ## **Week 6 Predictions**
