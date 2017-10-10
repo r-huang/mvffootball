@@ -51,7 +51,7 @@ _________________________________________
 
 Notable Mentions: *Sammy Watkins (LAR) (0.00 pts)*
 _________________________________________
-#### **. Abhinav's Team (Owner: Abhinav) (3 - 2) (0)**
+#### **5. Abhinav's Team (Owner: Abhinav) (3 - 2) (0)**
 ##### **Player of the Week**: *DeAndre Hopkins (HOU)* (27.20 pts)
 ![](https://media.giphy.com/media/3ohhweAno8lE1ZCBPi/giphy.gif)
 ##### **Worst Play of the Week**: *Derrick Henry (TEN)* (0.90 pts)
