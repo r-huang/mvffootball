@@ -45,7 +45,7 @@ _________________________________
 
 #### 4. Jay Young (Owner: Charles) (4 - 1) (-1)
 ##### Player of the Week: *Deshaun Watson (HOU)* (35.54 pts)
-![](https://media.giphy.com/media/3o7aCV8dYrg4fls1Xy/giphy.gif)
+![Alt Text](https://media.giphy.com/media/3o7aCV8dYrg4fls1Xy/giphy.gif)
 
 ##### Worst Play of the Week: *Devante Parker (MIA)* (1.60 pts)
 
